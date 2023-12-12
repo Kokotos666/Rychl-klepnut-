@@ -1,1 +1,1 @@
-# Rychl-klepnut-
+# Rychle klepnuti
